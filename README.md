@@ -1,3 +1,3 @@
 # brahmanand1
 ## Student at UPES
-### b33 student
+### b33 Btech student
